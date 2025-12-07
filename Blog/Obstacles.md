@@ -12,7 +12,7 @@ To build the communities of the future we should be asking the following questio
 
  This is huge. Take for example how Americans have internalized the globalist narrative of destroying local communities by “diversifying” them. Alternatively, the external communities act in self interest. Although both their goals slightly overlap in certain situations neither group has a clear vision of the future.
 
-**Solution:** I write about creating a shared goal as a critical component in TAOR. I also talk about intellectualizing decisions beyond reaction and emotion. 
+**Solution:** I write about creating a shared goal as a critical component in MYBOOK. I also talk about intellectualizing decisions beyond reaction and emotion. 
 
 ### **What would it take to change peoples opinion?**
 

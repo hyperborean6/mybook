@@ -58,7 +58,7 @@ whole housewater treatment
 
 1. There is currently no list that myself or anyone I know is aware of. Because I mention it in my book only breifly I wanted to fully draw out the conclusions that you would come to so that a person can get started on these right away.
 2. I mention that products should be sourced from people who love you and have your shared vision. This is an aligned action that totally prevents large companies who only want to sell you things from ever being able to take that first position. Its great when large companies work hard to bring you resources. We all depend on them. But they are just systems. People in your community come first and systems need to reflect that.
-3. Many of the basic principles of TAOR are reflected in this list. First, every actions has intended outcomes and side effects. So there is no “this doesnt matter” attitude. 
+3. Many of the basic principles of MYBOOK are reflected in this list. First, every actions has intended outcomes and side effects. So there is no “this doesnt matter” attitude. 
 4. There is also the ancestral habits concept which is you are probably genetically adapted to ancestral conditions and altering them will have consequences. Dont jump into fads because of recent studies etc. Be skeptical. However, when new information offers low risk high reward outcomes it should be considered first. Example, new fade a) of eating clothing dye vs b) increasing fish roe consumption. Which one is lower risk higher reward?
 
 ### Implementation:
